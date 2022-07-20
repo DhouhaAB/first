@@ -1,3 +1,3 @@
 # first
-you can do everything 
-ch
+let's play games 
+wait 
